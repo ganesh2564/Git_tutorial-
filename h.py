@@ -1,3 +1,0 @@
-ttybydbsgfvynh ygby
-jnujn 
-gsdhds
